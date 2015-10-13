@@ -1,1 +1,0 @@
-# thebachelor.github.io
